@@ -1,5 +1,5 @@
 ## Hi there 👋
-It's test word on my Github peofile.
+- 😄 Nice to meet you! Wishing you a day filled with ease and joy.
 <!--
 **Qlihua/Qlihua** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
